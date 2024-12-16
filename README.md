@@ -14,3 +14,15 @@ HomeWork3
 
 
 ![homework3](https://github.com/user-attachments/assets/9b2c7d7e-9599-4626-8bd3-06de381bd701)
+
+HomeWork4
+
+
+
+https://github.com/user-attachments/assets/2b92f623-2327-40a3-9728-830a00296100
+
+
+
+HomeWork5
+
+![homework5](https://github.com/user-attachments/assets/175ab9e8-c100-4098-99e5-cf5a1c863f4f)
